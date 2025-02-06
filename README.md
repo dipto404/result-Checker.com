@@ -1,1 +1,0 @@
-# result-Checker.com
